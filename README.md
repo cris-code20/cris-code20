@@ -1,5 +1,5 @@
 # 💫 About Me:
-- 👋 Hi, I’m @cris-code20<br>- 👀 I am interested in everything related to software development.<br>- 🌱 I’m software engineering student<br>- 📫 How to reach me cris.cadosh@gmail.comHi, ☕️Write one run anyway<br>-
+- 👋 Hi, I’m @cris-code20<br>- 👀 I am interested in everything related to software development.<br>- 🌱 I’m software engineering student<br>- 📫 How to reach me cris.cadosh@gmail.comHi<br>- ☕️Write one run anyway
 
 
 ## 🌐 Socials:
